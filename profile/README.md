@@ -4,7 +4,7 @@
 
 <a href="https://k12lesson.live/"><img src="https://1lesson1.email/gamez.png"></a>
 
-# 🎮 Unblocked Games 76 & 77 at School  
+# Unblocked Games 76 & 77 at School  
 
 Welcome to the **Unblocked Games 76 & 77 at School** project! 🚀  
 
